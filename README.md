@@ -9,7 +9,7 @@
         things I like!:
         being supported ,
         being acknowledged by you!,
-        i may not be able to comfort you but hopefully my presence is enough to cheer you up.
+      i may not be able to comfort you but hopefully my presence is enough to cheer you up.
 
 
 
