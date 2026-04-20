@@ -2,7 +2,7 @@
     im a ambivert. yes! i am
     im also a bit of a sensitive person when ignored..
     basically you can talk to me if you want ! no need to be shy.
-     because of im a bit nonsharing yumeshipper er..no- we can share if your f/o is him!(poly trust.).
+      im a bit of a nonsharing yumeshipper er..no- we can share if your f/o is him!(poly trust.).
      Things i Dislike - Dark shippers 
         Proshippers/,
         weirdos.. actually like mentioning sensitive stuff.
