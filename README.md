@@ -1,5 +1,5 @@
   Hello My Name is Ophelia /Linxie
-    im a ambivert. yes! i am
+    im a ambivert, C+H freely! is appreciated .
     im also a bit of a sensitive person when ignored..
     basically you can talk to me if you want ! no need to be shy.
       im a bit of a nonsharing yumeshipper er..no- we can share if your f/o is him!(poly trust.).
