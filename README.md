@@ -4,7 +4,8 @@
     ambivert,
     im also a bit of a sensitive person when ignored..
     basically you can talk to me if you want ! no need to be shy.
-      im a bit of a nonsharing yumeshipper er..no- we can share if your f/o is him!(poly trust.).     Things i Dislike - Dark shippers 
+     C+H is alright for me as long as you whisper or not you can freely cuddle w me .
+     Things i Dislike - Dark shippers 
         Proshippers/,
       weirdos.. actually like mentioning sensitive stuff.
         things I like!:
